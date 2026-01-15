@@ -9,3 +9,5 @@ On 20th November 2025, I was given the golden opportunity to attend my first ind
 🤩 Overall, this industry talk has given me some insightful knowledge about how the use of computing and IT is vital for a business’ health and performance. As such, my team and I have designed a simple poster that summarises the industry talk.
 
 Many thanks to my teammates Fakhrul Azmi, Dina Alysa and MALEK ALRIHAWI.
+
+NOTE: If previewing the pdf file is not working on your browser, download it instead.
