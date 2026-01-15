@@ -1,3 +1,6 @@
+VIDEO LINK (FROM LINKEDIN):
+https://www.linkedin.com/posts/wong-li-hong-846203293_face-to-face-industry-talk-session-on-activity-7397112008304816128-Abur?utm_source=share&utm_medium=member_desktop&rcm=ACoAAEcLIPYBR5dWRaWR9qyeePGtCFsGw_BeQ1Y 
+
 🔥 Face-to-face industry talk session
 
 
